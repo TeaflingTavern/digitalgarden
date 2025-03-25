@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/7-cosmologia/dimensioni-e-piani/"}
 ---
 
-
 >La più grande teoria mai concepita dal sottoscritto… *quasi*! Diciamo che sono circa al… titolo. Ehm... dove ero rimasto? Ah, sì!
 >Questa sezione della mia enciclopedia raccoglie tutto ciò che riguarda le Dimensioni e i vari Piani Materiali! Per ora ne conosciamo solo uno, ma sarà io, il leggendario e *ineguagliabile* [[Professor Frizzapicco\|Professor Frizzapicco]], a scoprirne altri! …Con il vostro aiuto, ovviamente!
 
