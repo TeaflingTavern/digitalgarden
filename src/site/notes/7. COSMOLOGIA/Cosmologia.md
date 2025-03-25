@@ -11,6 +11,6 @@ In questa sezione dell'enciclopedia troverete tutto ciò che è legato all'affas
 - [[7. COSMOLOGIA/Pianeti\|Pianeti]] : Grandi sassi in grado di ospitare forme di vita più, o meno, complesse ed intelligenti.
 - [[7. COSMOLOGIA/Corpi Celesti\|Corpi Celesti]] : Parliamo di satelliti quali le lune del nostro pianeta.
 - [[7. COSMOLOGIA/Stelle\|Stelle]] : Come quelle che ho nominato oggi!
-- [[Dimensioni e Piani \|Dimensioni e Piani ]] : Una delle mie teorie, credo esistano altri piani materiali paralleli al nostro! Ma non farne parola con nessuno finché non pubblico la mia tesi...
+- [[7. COSMOLOGIA/Piani e Dimensioni\|Piani e Dimensioni]] : Una delle mie teorie, credo esistano altri piani materiali paralleli al nostro! Ma non farne parola con nessuno finché non pubblico la mia tesi...
 
 E se avrai l’onore di apprendere dal migliore, ovvero dal sottoscritto, chissà! Forse, un giorno, sarai tu a nominare una stella!
